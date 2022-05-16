@@ -1,0 +1,2 @@
+# DALDFKJWEOIFJLWEIRJSLDFJAY516
+Since the beginning of the Data Science Specialization we've noticed the unbelievable passion students have about our courses and the generosity they show toward each other on the course forums. A couple students have created quality content around the subjects we discuss, and many of these materials are so good we feel that they should be shared with all of our students. This site is meant to serve as a central directory for community created content.
